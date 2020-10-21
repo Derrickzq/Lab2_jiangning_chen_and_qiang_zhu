@@ -1,1 +1,1 @@
-# Lab2_jiangning_chen_and_qiang_zhu
+# Lab2_jianing_chen_and_qiang_zhu
